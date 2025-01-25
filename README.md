@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @stineb89
-- 👀 I’m interested in coding, animals, art, music and make the world a better place
-- 🌱 I’m currently learning coding
+- 👀 I’m interested in coding, animals, yoga, spirituality, music, art
+- 🌱 I’m currently learning more coding
 - 📫 How to reach me email,linkedin or instagram
 - 😄 Pronouns: she
 - ⚡ Fun fact: I am funny 👱🏻‍♀️
